@@ -1,4 +1,4 @@
-#SWIPE DOWN AND LEARN - 
+# SWIPE DOWN AND LEARN :-
 ## DAY - 1
 ## EDUTECH
 As the technology is developing so are the ways to express things ,One of the most developed technology is educational technology. Edutech refers to visualize every
