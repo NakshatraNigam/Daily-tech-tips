@@ -1,3 +1,6 @@
+
+![DAILY TECH TIPS](https://user-images.githubusercontent.com/73353246/144713399-81e20db5-afa2-4cd6-9891-b2a007be0e36.gif)
+
 # SWIPE DOWN AND LEARN :-
 ## DAY - 1
 ## EDUTECH
